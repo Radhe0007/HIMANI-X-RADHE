@@ -3,10 +3,10 @@
 ＪＡＩ ＳＨＲＥＥ ＲＡＭ
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <p align="center">
-𝗦 𝗔 𝗖 𝗛 𝗜 ꭙ 𝗡 𝗠 𝗨 𝗦 𝗜 𝗖 
+𝗥 𝗔 𝗗 𝗛 𝗘 ꭙ 𝗠 𝗨 𝗦 𝗜 𝗖 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <h2 align="center">
-    ── ❖ | sᴧᴄʜɪɴ ꭙ sᴧɴᴧᴛᴧɴɪ | ❖ ──
+    ── ❖ | ʀᴀᴅʜᴇ ꭙ sᴧɴᴧᴛᴧɴɪ | ❖ ──
     <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 </h2>
 <p align="center">
